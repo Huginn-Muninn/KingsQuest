@@ -1,3 +1,3 @@
 # KingsQuest
 Leikur fyrir  FORR3FL05EU-Hát
-Youtube: https://youtu.be/IsXi4uK_GEk
+Youtube: https://www.youtube.com/watch?v=XrQuNrEl-Hc&feature=youtu.be
